@@ -45,7 +45,7 @@ You ever thought I was
 You ever thought I was (Ooh)
 ```
 
-### -----------------------Github's Dafault Below------------------------
+### -----------------------Github's Default Below------------------------
 
 You can use the [editor on GitHub](https://github.com/imqkp/imqkp.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
 
