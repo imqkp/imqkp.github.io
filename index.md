@@ -6,7 +6,7 @@ QQ:975329367
 
 Wechat:Labieal740951
 
-Mail:975329367@qq.com  im.qkp@outlook.com
+Mail:975329367@qq.com    im.qkp@outlook.com
 
 Tel:(+86)13303112288
 
