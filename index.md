@@ -2,6 +2,17 @@
 
 Hey,guys.I'm qkp.You don't need to know what I do or where I'm from.Cause I'm your friend here!
 
+QQ:975329367
+
+Wechat:Labieal740951
+
+Mail:975329367@qq.com  im.qkp@outlook.com
+
+Tel:(+86)13303112288
+
+###Diary
+
+
 You can use the [editor on GitHub](https://github.com/imqkp/imqkp.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
