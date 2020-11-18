@@ -10,13 +10,13 @@ Mail:975329367@qq.com  im.qkp@outlook.com
 
 Tel:(+86)13303112288
 
-### Diary|20201118
+### Diary | 20201118
 
 Rain!Rain!Rain!
 
 Hope my laptop be okay lol.
 
-### -----------------------Github Dafault Below------------------------
+### -----------------------Github's Dafault Below------------------------
 
 You can use the [editor on GitHub](https://github.com/imqkp/imqkp.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
 
