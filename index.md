@@ -27,12 +27,6 @@ src="//music.163.com/outchain/player?type=2&id=1381738255&auto=1&height=66">
 <embed src="//music.163.com/style/swf/widget.swf?sid=1381738255&type=2&auto=1&width=320&height=66" width="340" height="86"  allowNetworking="all">
 </embed>
 
-<iframe src="//ghbtns.com/github-btn.html?
-user=alloyteam&repo=alloytouch&type=watch&count=true" 
-allowtransparency="true" 
-frameborder="0" scrolling="0" 
-width="110" height="20">
-</iframe>
 
 ### -----------------------Github's Dafault Below------------------------
 
