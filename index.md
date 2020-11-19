@@ -14,8 +14,7 @@ Tel:(+86)13303112288
 
 Rain!Rain!Rain!
 
-Hope my laptop be okay lol.\n
-sasaas
+Hope my laptop be okay lol.
 
 ### Today's Song That I Recommended
 [Castles (Sam Feldt Remix)](https://music.163.com/song?id=1381738255&userid=410950958)
