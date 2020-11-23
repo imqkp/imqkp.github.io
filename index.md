@@ -10,6 +10,9 @@ Mail:`975329367@qq.com`    `im.qkp@outlook.com`
 
 Tel:`(+86)13303112288`
 
+
+***********
+
 ### Diary | 20201123
 
 **Long time no see!**
@@ -27,6 +30,8 @@ Surprisingly fantastic!
 I can't help appreciating it again! 
 
 ![](D:\公众号素材\20201123 donghu)
+
+**********
 
 ### Songs That I Recommended #2
 [Clouds](https://music.163.com/song?id=26418207&userid=410950958)
@@ -68,11 +73,16 @@ We’ll go up in the clouds because the view is a little nicer
 Up here my dear
 It won’t be long now, it won’t be long now
 ```
+
+**********
+
 ### Diary | 20201118
 
 Rain!Rain!Rain!
 
 Hope my laptop be okay lol.
+
+*********
 
 ### Songs That I Recommended #1
 [Castles (Sam Feldt Remix)](https://music.163.com/song?id=1381738255&userid=410950958)
@@ -102,3 +112,4 @@ I'm gonna be more than
 You ever thought I was
 You ever thought I was (Ooh)
 ```
+**********
