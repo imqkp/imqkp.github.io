@@ -13,9 +13,17 @@ Tel:(+86)13303112288
 ### Diary | 20201123
 
 Long time no see!
+
+
 The day before yesterday I took a ride from my school to Donghu.
+
+
 I liked it very much because the night view was awesome.
+
+
 Surprisingly fantastic!
+
+
 I can't help appreciating it again! 
 
 ### Songs That I Recommended #2
