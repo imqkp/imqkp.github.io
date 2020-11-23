@@ -24,7 +24,7 @@ The day before yesterday I took a ride from my school to Donghu.
 I liked it very much because the night view was awesome.
 
 
-Surprisingly fantastic!
+Surprisingly fantastic! :smile::smile::smile:
 
 
 I can't help appreciating it again! &#10084; &#10084; &#10084;
