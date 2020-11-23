@@ -12,7 +12,7 @@ Tel:`(+86)13303112288`
 
 ### Diary | 20201123
 
-Long time no see!
+**Long time no see!**
 
 
 The day before yesterday I took a ride from my school to Donghu.
@@ -25,6 +25,8 @@ Surprisingly fantastic!
 
 
 I can't help appreciating it again! 
+
+![](D:\公众号素材\20201123 donghu)
 
 ### Songs That I Recommended #2
 [Clouds](https://music.163.com/song?id=26418207&userid=410950958)
